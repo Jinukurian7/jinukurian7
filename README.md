@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jinukurian7
+- 👋 Hi, I’m Jinu Kurian
 
 
 <!---
